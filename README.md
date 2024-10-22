@@ -1,2 +1,4 @@
 
-Ek din mar jayega
+Ek din mar jayega 
+Kutte ki maut
+
